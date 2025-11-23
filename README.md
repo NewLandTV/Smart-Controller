@@ -2,6 +2,8 @@
 
 Controlling my computer with my smartphone.
 
+[Playlist](https://www.youtube.com/playlist?list=PLG6918Ng_f9tJRgOzhzZStEu2H38iayCH)
+
 # **Links(링크)**
 
 * [JkhTV YouTube(장경혁tv)](https://www.youtube.com/channel/UC0lR1aYGgOhFioC3IsazUtw)
